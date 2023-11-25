@@ -8,6 +8,6 @@
 
  ### Você entrar em contato comigo 📫
 
-gabriely.manduca@ecola.pr.gov.br
+gabriely.manduca@escola.pr.gov.br
 
 @GabrielyManduca
